@@ -39,7 +39,6 @@ Professional ATS resumes
 ## Contact
 
 LinkedIn:
-(Add your LinkedIn URL)
-
+(https://www.linkedin.com/in/chandu-krishnavarpu-a1907723b/)
 Email:
-(Your professional email)
+chanduharry321@gmail.com
